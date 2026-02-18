@@ -1,7 +1,8 @@
-Not everyone wants the same kind of connection.
+I don’t use public dating apps.
 
-Some people prefer faster conversations.
-Others value privacy and discretion.
+I prefer private conversations with the right people.
 
-There are platforms designed for that.
-[See what’s currently available](https://t.datsk11.com/405350/7973?bo=2753,2754,2755,2756&aff_sub5=SF_006OG000004lmDN)
+If you’re curious and over 18,
+you can see what I’m using below.
+
+👉 [See what’s currently available](https://t.datsk11.com/405350/7973?bo=2753,2754,2755,2756&aff_sub5=SF_006OG000004lmDN)
